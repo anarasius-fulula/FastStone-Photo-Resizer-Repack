@@ -1,0 +1,1 @@
+# FastStone-Photo-Resizer-Repack
